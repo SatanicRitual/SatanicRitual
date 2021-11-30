@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SatanicRitual
+- 👀 I’m interested in performing satanic rituals! :)
+- 🌱 I’m currently learning on how to skin a human alive.
+- 💞️ I’m looking to collaborate on performing rituals.
+- 📫 Message ghkrguhdfgjshbfjgkbsdifughvcbjhlzllp@gmail.com to chat with me! :D
